@@ -1,1 +1,1 @@
-tomsfriendlyserver.party
+# tomsfriendlyserver.party
