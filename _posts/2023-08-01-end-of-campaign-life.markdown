@@ -15,7 +15,7 @@ But managed to bring out the [Zinogre](https://www.dndbeyond.com/monsters/365757
 
 It was nearly a year to the date it started and I could have made it last a bit longer but it felt right to end it there. This was due to re-reading some of the end quests that were meant to be done in the Divine Contentions module and feeling they weren't appropriate at all, either not making sense to the story e.g., Dumathoin’s Gulch which sends the Party to get an item which might never be used at all.
 
-The "final" two quests didn't sit right with me either. As they assumed certain events would happen no matter what the Party did in the Leilon Beseiged and an end fight with somewhat weak end boss.
+The "final" two quests didn't sit right with me either. As they assumed certain events would happen no matter what the Party did in the Leilon Besieged and an end fight with somewhat weak end boss.
 
 But now that's it's all over, I'm feeling lost but there is an itch to run a game again. I'm still a Player in a campaign but it doesn't quite cover the feelings of being a DM. Definitely, will run another soon but not sure which way to go: module based or homebrew.
 
